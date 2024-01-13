@@ -1,2 +1,0 @@
-# nicolasbottari.com
-Personal Website
